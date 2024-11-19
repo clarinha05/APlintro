@@ -1,2 +1,2 @@
 # APlintro
-Clara Eduarda Bahia Franco
+Clara Eduarda Bahia Franco e Samilly Ryara Vilela Dias
